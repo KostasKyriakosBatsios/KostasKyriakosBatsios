@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **full stack and problem solving from experienced developers**
 
-- 💬 Ask me about **anythinh, even non computer science (cs) related ones! :)**
+- 💬 Ask me about **anything, even non computer science (cs) related ones! :)**
 
 - 📫 How to reach me **konstantinos.mpatsios@gmail.com**
 
