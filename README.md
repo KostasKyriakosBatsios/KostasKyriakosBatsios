@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **problem solving. No limitations on tools and sectors**
 
-- 👯 I’m looking to collaborate on **any project so I can gain experience. In any way possible!**
+- 👯 I’m looking to collaborate on **any project so I can gain experience and contribute in any way possible!**
 
 - 🤝 I’m looking for help with **full stack and problem solving from experienced developers**
 
