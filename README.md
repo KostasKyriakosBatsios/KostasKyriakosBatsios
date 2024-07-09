@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **konstantinos.mpatsios@gmail.com**
 
-- ⚡ Fun fact **I'm doing kickboxing, I go to the gym, I learn German on my freetime, and I'm an Eastern Orthodox Christian!**
+- ⚡ Fun fact **I'm doing kickboxing, I go to the gym and I learn German on my freetime!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
