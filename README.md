@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **konstantinos.mpatsios@gmail.com**
 
-- ⚡ Fun fact **I'm doing kickboxing, I go to the gym and I learn German on my freetime!**
+- ⚡ Fun fact **I'm doing calisthenics and gym and on my freetime I like to travel, hangout with my friends and watch sports!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
