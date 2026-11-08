@@ -4,17 +4,15 @@
 
 - 🔭 I’m currently studying at **International Hellenic University**
 
-- 🌱 I’m currently learning **problem solving. No limitations on tools and sectors**
+- 🌱 I’m currently learning **various skills, even non related to my field: electrical engineering with main focus on AI/ML Engineering!**
 
 - 👯 I’m looking to collaborate on **any project so I can gain experience and contribute in any way possible!**
 
-- 🤝 I’m looking for help with **full stack and problem solving from experienced developers**
-
-- 💬 Ask me about **anything, even non computer science (cs) related ones! :)**
+- 💬 Ask me about **anything, even non field related ones! :)**
 
 - 📫 How to reach me **konstantinos.mpatsios@gmail.com**
 
-- ⚡ Fun fact **I'm doing calisthenics and gym and on my freetime I like to travel, hangout with my friends and watch sports!**
+- ⚡ Fun fact **I'm working as an IT Support Assistant, and on my freetime I like to go to the gym and run, travel, hangout with my friends and family!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
